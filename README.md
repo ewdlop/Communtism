@@ -45,3 +45,5 @@ Then conquer we must, when our cause it is just,
 And this be our motto - "In God is our trust,"  
 And the star-spangled banner in triumph shall wave 
 O'er the land of the free and the home of the brave.
+
+[TRUMP was funny]<https://www.youtube.com/watch?v=sXblpo1cknI>
