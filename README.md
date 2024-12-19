@@ -54,3 +54,8 @@ O'er the land of the free and the home of the brave.
 
 
 "The more you talk about it the more confusious it is"
+
+
+Devil: you guys are so fuck up!
+
+I be: this is perfect natural.
