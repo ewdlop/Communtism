@@ -58,4 +58,4 @@ O'er the land of the free and the home of the brave.
 
 Devil: you guys are so fuck up!
 
-I be: this is perfect natural.
+I be: this is perfectly supernatural.
